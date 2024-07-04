@@ -1,4 +1,5 @@
 Ingredients
+Let's begin
 4 ounces dried guajillo or ancho chiles, or a combination of both
 Salt
 1 large (108 ounce, 6 lb 12 oz, 3 kg) can white hominy, drained and rinsed
@@ -16,3 +17,4 @@ Garnishes (can prep while pozole is cooking):
 4 limes, quartered
 1 bunch red radishes, sliced thin
 12 to 24 tostada shells (see Recipe Note)
+Enjoy my recipe!
